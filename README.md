@@ -1,1 +1,1 @@
-# yogalingamvaaranan.github.io
+# YogalingamPhotography.github.io
